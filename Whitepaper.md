@@ -1,1 +1,1 @@
-<p><span style="font-size: large;"><b>Click <a href="https://drive.google.com/file/d/1-0OjVXEsUgFK7uUfqOjU5U5HGDWUX6fL/view?usp=drivesdk" target="_blank">Here</a> To Download &amp; View</b></span></p>
+[DelightFinance White Paper.pdf](https://github.com/DelightFinance/Delight-Finance-White-paper/files/7195331/DelightFinance.White.Paper.pdf)

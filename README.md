@@ -1,1 +1,0 @@
-# Delight-Finance-White-paper
